@@ -1,0 +1,1 @@
+# SMPN20KONSEL.com
